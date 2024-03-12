@@ -17,7 +17,7 @@
 
 ## 😂 Fun Fact
 
-- Hue Hue Hue
+- My code can paint pixels into stunning websites, but it can also build pipelines to suck up all the data. ️
 
 </br>
 
